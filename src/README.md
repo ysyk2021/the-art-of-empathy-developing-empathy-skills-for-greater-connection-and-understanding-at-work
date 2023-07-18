@@ -19,5 +19,4 @@ In this book, we will provide an overview of empathy theory and practice, explor
 
 By mastering the art of empathy in the workplace, individuals and organizations can reap numerous benefits, including improved communication, stronger relationships, greater collaboration, increased job satisfaction, enhanced productivity, and a positive work environment. In the following chapters, we will explore how to develop and apply empathy skills in the workplace, leading to greater connection and understanding among colleagues and teams.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
