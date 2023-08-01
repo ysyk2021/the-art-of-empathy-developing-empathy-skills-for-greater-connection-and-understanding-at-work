@@ -61,5 +61,3 @@ Embracing Clear Communication and Expectations around Empathy
 -------------------------------------------------------------
 
 Fostering clear communication and setting expectations around empathy creates a positive and understanding work environment. When employees know how to effectively communicate and embrace empathy, it leads to improved understanding, open dialogue, and effective conflict resolution. By implementing these strategies, organizations can nurture a culture of clear communication, empathy, and mutual respect.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by binjie09.*

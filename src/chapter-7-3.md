@@ -65,5 +65,3 @@ Embracing a Positive Work Environment
 By implementing these strategies, organizations can create a positive work environment that promotes both productivity and innovation. When employees feel supported, engaged, and valued, they are more likely to contribute their best efforts, collaborate effectively, and generate innovative ideas.
 
 Remember, building a positive work environment requires ongoing effort, commitment, and continuous improvement. By prioritizing employee well-being, collaboration, and creativity, organizations can create a workplace where employees thrive and the organization achieves long-term success.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

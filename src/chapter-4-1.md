@@ -46,5 +46,3 @@ Strategies for Responding with Empathy
 6. **Follow-Up and Check-In**: After a conversation, follow up with the person to see how they are doing and if there is anything else they would like to discuss. Show genuine care and maintain an ongoing connection.
 
 Remember, developing active listening and empathy skills takes time and practice. By incorporating these strategies into your daily interactions, you can create a workplace culture that values effective communication, fosters understanding, and promotes strong professional relationships.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

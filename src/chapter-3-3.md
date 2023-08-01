@@ -61,5 +61,3 @@ Embracing Ownership and Follow-Through
 --------------------------------------
 
 Encouraging ownership and follow-through within the workplace requires a combination of clear expectations, empowerment, support, and recognition. By implementing these strategies, organizations can foster a culture of accountability, responsibility, and productivity. When employees take ownership and consistently follow through on their commitments, the entire organization benefits, leading to shared success and growth.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

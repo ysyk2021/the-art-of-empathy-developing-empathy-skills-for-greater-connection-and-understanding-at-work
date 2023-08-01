@@ -51,5 +51,3 @@ Empathy: A Catalyst for Positive Change
 Conflict resolution through empathy has the potential to transform workplace relationships and foster a more harmonious and productive environment. By embracing empathy as a core skill, individuals can actively contribute to the resolution of conflicts, rather than allowing them to escalate or persist. Through empathetic listening, validating emotions, and exploring win-win solutions, conflicts can serve as opportunities for growth, learning, and strengthened relationships.
 
 Remember, conflict is not necessarily negative---it is how we choose to address and resolve it that determines its impact on the workplace. With empathy as our guide, conflicts can become catalysts for positive change and an essential stepping stone towards greater understanding and collaboration.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

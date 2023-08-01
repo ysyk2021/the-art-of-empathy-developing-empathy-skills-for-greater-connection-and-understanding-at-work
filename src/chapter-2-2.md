@@ -50,5 +50,3 @@ Each type of empathy has distinct effects on workplace relationships and product
 * Compassionate empathy reinforces a culture of care and empathy. It promotes a sense of belonging and camaraderie, which can have a positive impact on employee morale, motivation, and overall workplace satisfaction.
 
 By recognizing the different types of empathy and their effects, individuals can develop a comprehensive understanding of empathy's role in the workplace. Through the intentional cultivation of these empathy types, individuals and organizations can foster strong relationships, improve communication, drive collaboration, and ultimately enhance productivity.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

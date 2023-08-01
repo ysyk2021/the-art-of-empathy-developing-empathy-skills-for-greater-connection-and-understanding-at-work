@@ -54,5 +54,3 @@ Strategies for Encouraging Open Communication:
 * Encourage the use of online discussion forums or collaboration platforms for sharing ideas, asking questions, and engaging in ongoing conversations.
 
 By implementing these strategies, organizations can create an environment where open communication and dialogue are valued and practiced. This will lead to better relationships, increased innovation, and improved outcomes for individuals and the overall team.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

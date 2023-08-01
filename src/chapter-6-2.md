@@ -69,5 +69,3 @@ Creating a culture of respect and inclusivity requires intentional effort and on
 * Use the collected data to identify areas for improvement and develop action plans accordingly.
 
 By implementing these strategies, organizations can foster a culture where respect and inclusivity are deeply ingrained. Remember that building a respectful and inclusive workplace is an ongoing process that requires continuous evaluation and adaptation. Embrace the power of respect and inclusivity to unlock the full potential of your organization and create a thriving environment for all.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

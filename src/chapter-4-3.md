@@ -57,5 +57,3 @@ Strategies for Utilizing Nonverbal Cues for Demonstrating Empathy
 6. **Be Mindful of Subtle Cues**: Pay attention to microexpressions, subtle shifts in body language, and changes in tone. These cues can provide valuable insights into others' emotions and allow you to respond empathetically.
 
 Remember that nonverbal cues can vary across cultures and individuals, so it is essential to observe and adapt according to the context. By integrating these strategies and honing your nonverbal communication skills, you can strengthen empathy in the workplace and cultivate more meaningful connections with your colleagues.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

@@ -65,5 +65,3 @@ Embracing Supportive and Recognizing Culture
 By incorporating these strategies, organizations can create a supportive and recognizing culture that empowers employees to reach their fullest potential. When employees feel supported and recognized, they become more engaged, motivated, and committed, leading to increased productivity, higher job satisfaction, and overall success.
 
 Remember, supporting and recognizing employees should be an ongoing effort that is embedded in the organization's values and practices. By prioritizing the well-being and development of employees, organizations foster a positive work environment where everyone can thrive and succeed.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

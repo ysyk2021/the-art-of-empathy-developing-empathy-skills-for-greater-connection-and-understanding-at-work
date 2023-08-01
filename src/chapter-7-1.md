@@ -57,5 +57,3 @@ Embracing Empathy as a Transformative Leadership Practice
 Incorporating empathy into leadership practices enhances team dynamics, drives employee engagement, and promotes a culture of collaboration and inclusivity. By actively listening, cultivating emotional intelligence, practicing empathetic communication, building relationships, seeking diverse perspectives, leading by example, and continuously learning, leaders can foster an environment where individuals feel valued, understood, and inspired to achieve their best.
 
 Remember, empathy is not just a soft skill; it is a powerful tool that enables leaders to connect with their team members, unleash their full potential, and drive sustainable success.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

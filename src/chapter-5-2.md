@@ -59,5 +59,3 @@ Embracing Meaningful Connections
 By incorporating empathy, active listening, effective communication, and relationship-building strategies, individuals can forge meaningful connections with colleagues and superiors. These connections cultivate a positive and collaborative work environment, leading to enhanced job satisfaction, increased productivity, and long-lasting professional relationships.
 
 Remember, building strong connections requires ongoing effort, genuine interest, and a commitment to understanding and supporting others. When we prioritize empathy and connection, we foster a workplace culture that nurtures personal growth and collective success.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*

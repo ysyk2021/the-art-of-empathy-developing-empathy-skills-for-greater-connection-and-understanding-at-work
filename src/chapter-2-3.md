@@ -60,5 +60,3 @@ Strategies for Building Empathy Skills
 * Build resilience to navigate challenging or emotionally demanding situations. Developing resilience helps prevent burnout and enables you to sustain your empathy over time.
 
 By incorporating these strategies into your daily work interactions, you can cultivate and strengthen your empathy skills. Embracing empathy as a core component of your professional toolkit will contribute to a positive work environment, improved relationships, and enhanced collaboration.
-
-*Note: This chapter is adapted from "The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work" by Binjie09.*
