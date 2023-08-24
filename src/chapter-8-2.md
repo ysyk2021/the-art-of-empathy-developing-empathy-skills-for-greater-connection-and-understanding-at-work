@@ -1,5 +1,3 @@
-Using Data and Metrics to Track Progress and Success
-================================================================
 
 In this chapter, we will explore the importance of using data and metrics to track progress and success when developing empathy skills in the workplace. Implementing a data-driven approach allows us to measure the effectiveness of empathy initiatives, identify areas for improvement, and demonstrate the value of empathy in achieving greater connection and understanding at work.
 

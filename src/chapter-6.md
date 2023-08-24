@@ -1,5 +1,3 @@
-Chapter 6: Promoting Diversity, Equity, and Inclusion through Empathy
-=====================================================================
 
 In this chapter, we will explore how empathy can be used to promote diversity, equity, and inclusion in the workplace. By developing strategies to foster a culture of respect and inclusivity, addressing systemic barriers, and promoting open communication, organizations can create a more diverse and equitable workplace.
 

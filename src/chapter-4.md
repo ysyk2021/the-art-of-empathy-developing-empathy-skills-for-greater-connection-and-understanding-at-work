@@ -1,5 +1,3 @@
-Chapter 4: Practicing Active Listening and Responding with Empathy
-==================================================================
 
 In this chapter, we will explore the importance of practicing active listening and responding with empathy in the workplace. By developing these skills, we can improve our communication and connection with colleagues, clients, and customers.
 

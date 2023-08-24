@@ -1,5 +1,3 @@
-Chapter 8: Measuring and Evaluating Empathy Performance
-=======================================================
 
 In this chapter, we will explore the importance of measuring and evaluating empathy performance in the workplace. By using data and metrics to track progress and success, individuals and organizations can adjust their empathy strategies as needed and continue to improve their communication and connection with others.
 

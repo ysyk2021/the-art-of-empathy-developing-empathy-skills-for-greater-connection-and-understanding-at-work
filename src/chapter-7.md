@@ -1,5 +1,3 @@
-Chapter 7: Incorporating Empathy into Leadership Practices
-==========================================================
 
 In this chapter, we will explore how empathy can be incorporated into leadership practices to promote a positive and productive work environment. By developing strategies for providing support and recognition to employees, creating a culture of respect and inclusivity, and promoting open communication, leaders can foster greater empathy and connection among team members.
 

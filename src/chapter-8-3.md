@@ -1,5 +1,3 @@
-Adjusting Empathy Strategies as Needed
-==================================================
 
 In this chapter, we will explore the importance of adjusting empathy strategies in the workplace to effectively develop empathy skills and foster greater connection and understanding. Adapting and refining empathy strategies based on feedback, evolving needs, and individual differences allows us to maximize their impact and create a more empathetic work environment.
 

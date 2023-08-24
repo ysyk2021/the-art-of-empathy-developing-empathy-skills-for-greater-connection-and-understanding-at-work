@@ -1,5 +1,3 @@
-Identifying Different Types of Empathy and Their Effects on Workplace Relationships and Productivity
-=============================================================================================================
 
 In the workplace, empathy plays a crucial role in fostering strong relationships and promoting productivity. This chapter explores the various types of empathy and how they impact workplace dynamics. By understanding these different types and their effects, individuals can cultivate empathy effectively to create a positive and supportive work environment.
 

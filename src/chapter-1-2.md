@@ -1,5 +1,3 @@
-Historical Perspectives on Empathy Theory and Practice
-===============================================================
 
 In this chapter, we will explore the historical development of empathy theory and practice, tracing its roots across several disciplines and highlighting key milestones in our understanding of empathy. By delving into the historical perspectives of empathy, we can gain a deeper appreciation for its significance and application in various contexts.
 

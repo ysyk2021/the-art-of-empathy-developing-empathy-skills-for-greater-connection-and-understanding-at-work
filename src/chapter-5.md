@@ -1,5 +1,3 @@
-Chapter 5: Building Relationships through Empathy
-=================================================
 
 Empathy is a critical skill for building strong relationships in the workplace. In this chapter, we will explore strategies for building relationships through empathy, strengthening connections with colleagues and superiors, and resolving conflicts.
 

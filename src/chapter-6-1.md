@@ -1,5 +1,3 @@
-Developing Strategies for Promoting Diversity, Equity, and Inclusion Through Empathy
-===========================================================================================================================================================
 
 Empathy is a powerful tool for promoting diversity, equity, and inclusion in the workplace. By understanding and valuing different perspectives and experiences, individuals can create a culture of respect and inclusivity that fosters collaboration, innovation, and success. In this chapter, we'll explore strategies for promoting diversity, equity, and inclusion through empathy.
 

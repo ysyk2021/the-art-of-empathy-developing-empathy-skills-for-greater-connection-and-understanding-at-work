@@ -1,5 +1,3 @@
-Chapter 1: Introduction to Empathy in the Workplace
-===================================================
 
 Empathy is a critical skill for building strong relationships and fostering effective communication in the workplace. In this chapter, we will define empathy and its importance in the workplace, explore historical perspectives on empathy theory and practice, and discuss the challenges and opportunities of developing empathy skills in the workplace.
 

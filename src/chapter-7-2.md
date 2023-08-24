@@ -1,5 +1,3 @@
-Providing Support and Recognition to Employees
-=======================================================
 
 In the modern workplace, providing support and recognition to employees is a crucial aspect of building a positive and productive work environment. This chapter explores strategies and best practices for offering support and recognition that foster employee engagement, motivation, and overall job satisfaction.
 

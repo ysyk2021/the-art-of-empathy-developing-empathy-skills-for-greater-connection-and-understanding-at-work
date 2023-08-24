@@ -1,5 +1,3 @@
-Chapter 3: Developing a Culture of Empathy
-==========================================
 
 Developing a culture of empathy in the workplace can lead to improved communication, increased collaboration, and stronger relationships. In this chapter, we will explore strategies for creating a culture of empathy in the workplace.
 
@@ -38,5 +36,4 @@ Conclusion
 ----------
 
 Developing a culture of empathy in the workplace is essential for promoting communication, collaboration, and strong relationships. By developing strategies for creating a culture of empathy, fostering clear communication and expectations around empathy, and encouraging ownership and follow-through, organizations can create an environment that values empathy and encourages employees to develop their skills. Through continued effort and commitment, organizations can create a workplace where empathy is valued and practiced by everyone.
-
 

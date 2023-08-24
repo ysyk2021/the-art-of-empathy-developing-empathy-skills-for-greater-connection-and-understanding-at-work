@@ -1,5 +1,3 @@
-Using Nonverbal Cues to Demonstrate Empathy
-====================================================
 
 In addition to verbal communication, nonverbal cues play a crucial role in conveying empathy and understanding in the workplace. This chapter explores the significance of nonverbal cues and offers strategies for utilizing them effectively to demonstrate empathy. By mastering these techniques, individuals can enhance their ability to connect with others on a deeper level and foster a more empathetic work environment.
 

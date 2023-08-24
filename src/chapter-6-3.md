@@ -1,5 +1,3 @@
-Addressing Systemic Barriers to Diversity, Equity, and Inclusion
-=======================================================================================================================================
 
 Empathy is a powerful tool for promoting diversity, equity, and inclusion in the workplace. However, it's important to recognize that empathy alone cannot solve systemic barriers to diversity, equity, and inclusion. In this chapter, we'll explore strategies for addressing systemic barriers to diversity, equity, and inclusion through empathy.
 

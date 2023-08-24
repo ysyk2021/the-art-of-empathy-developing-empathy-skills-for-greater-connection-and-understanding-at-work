@@ -1,5 +1,3 @@
-Creating a Culture of Respect and Inclusivity
-========================================================
 
 In today's diverse and interconnected workplace, creating a culture of respect and inclusivity is crucial for fostering a positive and productive environment. This chapter explores the importance of cultivating respect and inclusivity within organizations and provides strategies to promote these values. By embracing respect and inclusivity, companies can unlock the full potential of their employees and create a thriving work environment.
 

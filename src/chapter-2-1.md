@@ -1,5 +1,3 @@
-Recognizing the Benefits of Empathy for Individuals and Organizations in the Workplace
-========================================================================================================================================
 
 Empathy is a powerful tool for building strong relationships, fostering collaboration, and achieving success in the workplace. In this chapter, we'll explore the benefits of empathy for individuals and organizations in the workplace.
 

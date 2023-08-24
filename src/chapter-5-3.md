@@ -1,5 +1,3 @@
-Resolving Conflicts Through Empathy
-============================================
 
 Conflicts are an inevitable part of any workplace, but they don't have to be detrimental. By harnessing the power of empathy, conflicts can be transformed into opportunities for growth, understanding, and improved relationships. In this chapter, we will explore how empathy can be utilized as a vital tool in resolving conflicts effectively.
 
