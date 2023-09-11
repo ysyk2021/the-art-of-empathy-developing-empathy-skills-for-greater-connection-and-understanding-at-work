@@ -1,3 +1,6 @@
+# The Art of Empathy: Developing Empathy Skills for Greater Connection and Understanding at Work
+
+Book Link: [https://zhengpublishing.com/the-art-of-empathy-developing-empathy-skills-for-greater-connection-and-understanding-at-work/](https://zhengpublishing.com/the-art-of-empathy-developing-empathy-skills-for-greater-connection-and-understanding-at-work/)
 
 Empathy is a critical skill in the workplace that facilitates greater communication, connection, and understanding. It involves the ability to understand and share the feelings of others, which can lead to stronger relationships, improved collaboration, and enhanced productivity. In this book, we will explore the art of empathy in the workplace, providing an overview of empathy theory and practice, as well as strategies for developing effective empathy skills.
 
